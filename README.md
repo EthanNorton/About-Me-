@@ -17,3 +17,7 @@
  ### That could a part of the policy work, to apply algorithms to minimize the budget deficit. Also, I would be willing to allocate my fair share to social security (while weaning off it in the long run, I do not see myself accepting social security). Also, defense and security could likely be shrank to 5% in perhaps 10 years or less. Improvements in healthcare efficiency could likely shrink Medicare to 10%, and then the rest could be fun donations (optimize the benefits of altruism). Interest on the debt would then be eradicated, very soon. 
  
  ### Then, I would like to allocate my energy in multiple forms to doing what I enjoy doing, work alongside top innovators and policy makers in order to optimize outcomes of the future.
+ 
+ ### So what classes would you like to lead?
+  ### The best would be a blend of three classes. All three capstone projects with seniors, at two different universities. The problem would be tackling grandest challenges going on in the world. One would be with top policy leaders. The other with top engineering students. The third would be the integration of the two classes, where the solutions (theoretical and concretely solved), would...
+   ### Students would then have the options of: joining a top level position in the company that implements solution, creating their own company, or pursuing their research in academia. The class either passes or fails collectively. They answer the solutions as they arise, or they do not.
