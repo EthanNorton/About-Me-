@@ -4,7 +4,7 @@
    ## I would like to contribute to risk mitigation and economic empowerment in both the short and long run, with a minimally biased viewpoint.
 
 ### How can I ensure that my viewpoints are minimally biased? I lead by example with respect to:
-  ### I believe in a minimalistic philosophy. Right now, all of my physical possessions can fit inside of my 2022 CrossTrek Subaru (Stella). Probably all of it can fit inside of the back hatch, even. I do not care much about a large salary, and I wanted a minimal sized home (quiet is important for me, though). This will indicate that I do have an attachment to material possessions, and have more freedom with my mind. I can imagine scenarios where I admit being wrong, without worrying about personal reprecussions.
+  ### I believe in a minimalistic philosophy. Right now, all of my physical possessions can fit inside of my 2022 CrossTrek Subaru (Stella). Probably all of it can fit inside of the back hatch, even. I do not care much about a large salary, and I wanted a minimal sized home (quiet is important for me, though). This will indicate that I do not have an attachment to material possessions, and have more freedom with my mind. I can imagine scenarios where I admit being wrong, without worrying about personal reprecussions.
  
 ### What would my day to day work consist of?
   ### I would enjoy teaching research methods to future students, as well as bringing out independent thought in top leaders. I would also enjoy doing research and publishing my thoughts locally, similarly to a platform as here, but perhaps in a more organized manor. 
