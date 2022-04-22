@@ -11,3 +11,9 @@
 
 ### How would I be paid?
   ### I could imagine a scenario where an institution(s) better managed and supported some of my idea generation, and we worked more closely together to improve communication speeds. A reasonable fraction of the profits would be returned, as that is fair. I imagine that I would donate a vast majority to wherever my future spouse and I both felt like. I think that this would perhaps avoid me having to pay taxes on my income, too. As I would be free to choose where to allocate it, and I would donate well above the tax bracket.
+  ### Also, these donations would not be limited to just the US.
+  
+### What about the staple programs that require heavy amounts of financial investment? I.E. Social Security, Defense, Medicare and Medicaid
+ ### That could a part of the policy work, to apply algorithms to minimize the budget deficit. Also, I would be willing to allocate my fair share to social security (while weaning off it in the long run, I do not see myself accepting social security). Also, defense and security could likely be shrank to 5% in perhaps 10 years or less. Improvements in healthcare efficiency could likely shrink Medicare to 10%, and then the rest could be fun donations (optimize the benefits of altruism). Interest on the debt would then be eradicated, very soon. 
+ 
+ ### Then, I would like to allocate my energy in multiple forms to doing what I enjoy doing, work alongside top innovators and policy makers in order to optimize outcomes of the future.
