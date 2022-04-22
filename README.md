@@ -1,6 +1,6 @@
 # So, what would my dream job be? 
  # At the moment, I would like to work alongside top innovators and policy makers in order to optimize outcomes of the future.
- ## What does that mean? I would like to contribute to risk mitigation and economic empowerment in both the short and long run, with a minimally biased viewpoint.
+  ## What does that mean? I would like to contribute to risk mitigation and economic empowerment in both the short and long run, with a minimally biased viewpoint.
 
 ### How can I ensure that my viewpoints are minimally biased? I lead by example with respect to:
   ### I believe in a minimalistic philosophy. Right now, all of my physical possessions can fit inside of my 2022 CrossTrek Subaru (Stella). Probably all of it can fit inside of the back hatch, even. I do not care much about a large salary, and I wanted a minimal sized home (quiet is important for me, though).
