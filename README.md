@@ -23,5 +23,6 @@
    ### Students would then have the options of: joining a top level position in the company that implements solution, creating their own company, or pursuing their research in academia. The class either passes or fails collectively. They answer the solutions as they arise, or they do not. Students would leave the class at different times, depending on who wants to take charge of the solutions.
    
    
-   ### Why not industry?
-     I would not feel right earning an income disproportionate to professors that have inspired me. Also, I would be the hardest/ most productive worker in any given field, so it would be confusing why my salary would be so low. It would just not make any sense. On the other hand, I would feel guilty being in a probably non-diverse group, with people not acknowleding the suffering people are going through in other parts of the world.
+ ### Why not industry?
+   ### I would not feel right earning an income disproportionate to professors that have inspired me. Also, I would be the hardest/ most productive worker in any given field, so it would be confusing why my salary would be so low. 
+   ### It would just not make any sense. On the other hand, I would feel guilty being in a probably non-diverse group, with people not acknowleding the suffering people are going through in other parts of the world.
