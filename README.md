@@ -24,4 +24,4 @@
    
    
    ### Why not industry?
-    ### I would not feel right earning an income disproportionate to professors that have inspired me. Also, I would be the hardest/ most productive worker in any given field, so it would be confusing why my salary would be so low. It would just not make any sense. On the other hand, I would feel guilty being in a probably non-diverse group, with people not acknowleding the suffering people are going through in other parts of the world.
+     I would not feel right earning an income disproportionate to professors that have inspired me. Also, I would be the hardest/ most productive worker in any given field, so it would be confusing why my salary would be so low. It would just not make any sense. On the other hand, I would feel guilty being in a probably non-diverse group, with people not acknowleding the suffering people are going through in other parts of the world.
