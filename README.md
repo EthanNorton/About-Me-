@@ -1,5 +1,6 @@
 ## So, what would my dream job be? 
- ## At the moment, I would like to work on BNB chain and grow the chain from the bottom and maintain balance.
+ ## At the moment, I would like to work on BNB chain and grow the chain from the bottom and maintain balance. Also, to enhance and support artists to grow the chain.
+  
   ## What does that mean? 
    ## I would like to contribute to risk mitigation and economic empowerment in both the short and long run, with a minimally biased viewpoint.
 
@@ -15,3 +16,6 @@
   
 ### What about the staple programs that require heavy amounts of financial investment? I.E. Social Security, Defense, Medicare and Medicaid
  ### That could a part of the policy work, to apply algorithms to minimize the budget deficit. Also, I would be willing to allocate my fair share to social security (while weaning off it in the long run, I do not see myself accepting social security). Also, defense and security could likely be shrank to 5% in perhaps 10 years or less. Improvements in healthcare efficiency could likely shrink Medicare to 10%, and then the rest could be fun donations (optimize the benefits of altruism). Interest on the debt would then be eradicated, very soon. 
+
+### What about your feelings, are you interested in someone?
+  ### Yes, I am. However, there are logistically problems that need worked out, and I am extremely shy -- plus it is hard for me to open up.
