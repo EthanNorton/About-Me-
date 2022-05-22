@@ -1,7 +1,7 @@
 ## So, what would my dream job be? 
 
  ## At the moment, I would like to work on BNB chain and grow the chain from the bottom and maintain balance. Also, to enhance and support artists to grow the chain.
-  ## Also, I would like a lifelong role working under CZ. I imagine Binance is very flexible and I would like to support the company. I am actively applying for a job there.
+  ## Also, I would like a lifelong role working under CZ. I imagine Binance is very flexible and I would like to support the company. I am actively applying for a job there. Binance can be very lean and low cost by doing exactly what they are doing, and I want to be apart of their team.
   
   
   ## What does that mean? 
@@ -31,4 +31,4 @@
 
 ### What about your feelings, are you interested in someone?
 
-  ### Yes, I am. However, there are logistically problems that need worked out, and I am extremely shy -- plus it is hard for me to open up.
+  ### Yes, I am. However, there are logistically problems that need worked out, and I am extremely shy -- plus it is hard for me to open up. I would like for my job to have remote, so I can have flexibility to travel wherever. I would still enjoy meeting with the team on an "x" occassion. 
