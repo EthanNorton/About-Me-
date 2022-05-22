@@ -1,7 +1,7 @@
 ## So, what would my dream job be? 
 
  ## At the moment, I would like to work on BNB chain and grow the chain from the bottom and maintain balance. Also, to enhance and support artists to grow the chain.
-  ## Also, I would like a lifelong role working under CZ. I imagine Binance is very flexible and I would like to support the company. I am actively applying for a job there. Binance can be very lean and low cost by doing exactly what they are doing, and I want to be apart of their team.
+  ## Also, I would like a lifelong role working under CZ. I imagine Binance is very flexible and I would like to support the company. I am actively applying for a job there. Binance can be very lean and low cost by doing exactly what they are doing, and I want to be apart of their team. 
   
   
   ## What does that mean? 
@@ -19,7 +19,7 @@
 
 ### How would I be paid?
 
-  ### I would be paid for supporting those that I invest in. I would try and invest from the bottom up, so there wouldn't be much need for taxes.
+  ### I would be paid for supporting those that I invest in. I would try and invest from the bottom up, so there wouldn't be much need for taxes. Perhaps my salary would be based on: growth of the chain, marketing and attracting new businesses, supportng users (user satisfaction), and creating content to help the team grow (other things, too).
   ### I would like to be paid via BNB packages (I would join with financial advisors to maximimize the estimated best packages on a monthly basis for variability).
   ### Also, these donations would not be limited to just the US.
   
