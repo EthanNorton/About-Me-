@@ -1,6 +1,6 @@
 ## So, what would my dream job be? 
  ## At the moment, I would like to work on BNB chain and grow the chain from the bottom and maintain balance. Also, to enhance and support artists to grow the chain.
-  
+  ## Also, I would like a lifelong role working under CZ. I imagine Binance is very flexible and I would like to support the company. I am actively applying for a job there.
   ## What does that mean? 
    ## I would like to contribute to risk mitigation and economic empowerment in both the short and long run, with a minimally biased viewpoint.
 
